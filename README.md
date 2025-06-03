@@ -1,6 +1,6 @@
 ## Hi all 👋
 
-My name is Diana and I am a recent graduate with a bachelor's in Business Adminstration.
+My name is Diana and I am a recent graduate with a bachelor's in Business Adminstration and look forward to starting the MBA program next semester.
 
 - ☀️ I’m currently working on a summer research project.
 
